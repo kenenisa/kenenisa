@@ -1,1 +1,1 @@
-# 👋 Hi
+# Such is Life.
